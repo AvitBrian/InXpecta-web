@@ -1,1 +1,1 @@
-this software belongs to Avit Brian MUGISHA. DON'\''T STEAL IT!
+this software belongs to Avit Brian MUGISHA. DON'T STEAL IT!
